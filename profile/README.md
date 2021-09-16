@@ -1,4 +1,4 @@
-# Hey, this is Sinfores repositories
+# Hey, this is Sinfores :fist:
 
 ## Who we are?
 
